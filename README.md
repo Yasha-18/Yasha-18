@@ -8,8 +8,6 @@ Hi, I am Yasha ✨
 🧠 Detail-oriented when debugging and building projects<br/>
 🌱 Constantly growing, one commit at a time<br/>
 <br/>
-🌟 Connect With Me<br/>
-📸 Instagram: https://www.instagram.com/yasha_2522?igsh=MXRoeGttYWM4aHR5bQ==
 
 
 ## 🌐 Socials:
